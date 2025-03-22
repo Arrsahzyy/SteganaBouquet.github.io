@@ -1,5 +1,4 @@
-## hello gittt
+## hello gayassss
 
-- aku menambahkan ini di fitur branch
--aku menambakan ini juaga ke 
-- 'Fitur-tambahan-1'
+- hallo semuanyaa gayasss
+- ini datang dari 'dev-adrian'
